@@ -1,2 +1,2 @@
-# white_russia_gang.github.io
+# whiterussiagang.github.io
 Русский майнкрафт
